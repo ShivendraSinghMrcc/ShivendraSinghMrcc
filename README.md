@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ShivendraSingh @ Mrcc
+- 👋 Hi, I’m ShivendraSingh @ MRCC
 - ✨ am Live NCR Delhi(NOIDA)
 - 👀 I’m interested in AI Tech
 - 🌱 I’m currently learning AI NEW Tech
